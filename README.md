@@ -1,4 +1,4 @@
-## Olá, eu sou a Thainá Rayane 👋
+## Olá, eu sou a Thainá Rayane ❤️
 
 - 🔭 Atualmente trabalho na área adiministrativa 
 - 🌱 Estou me aperfeiçoando em vendas corporativas
